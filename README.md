@@ -24,6 +24,5 @@ You have to know who to choose, there are many scammers, trust me:
 🌟 If you buy Standard you get 35% off all other packs 🌟
 
 # Contact
-⚠️ Im getting impersonate, always make sure you officialy deal with me, my username is @F123456789Mx only without anything else
+⚠️ Im getting impersonate, always make sure you officialy deal with me, my username is Fresh149 only without anything else
 
-💬Contact https://t.me/F123456789Mx 🔗
